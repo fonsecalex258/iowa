@@ -1,2 +1,2 @@
 # iowa
-trying
+*/fonseca/*
